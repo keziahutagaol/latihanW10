@@ -1,0 +1,1 @@
+# latihanW10
